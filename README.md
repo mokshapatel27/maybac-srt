@@ -44,10 +44,3 @@ The site is a single-page layout with smooth scroll navigation across 5 sections
 - SEO meta tags included (description, keywords, viewport)
 
 ---
-
-
-Plot No. 316, International Wealth Centre, VIP Road, Vesu, Surat — 395007, Gujarat
-
-Open every day · 10:00 AM – 10:00 PM · 4.5★ on Google (67 reviews)
-
-[Instagram](https://www.instagram.com/maybac.srt/) · [Google](https://www.google.com/search?q=MAYBAC+SURAT) · [Swiggy](https://www.swiggy.com/restaurants/maybac-vip-road-surat-1253563/dineout)
